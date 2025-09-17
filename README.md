@@ -1,2 +1,0 @@
-# kalininvadimwork.github.io
-CV
